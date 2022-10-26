@@ -1,2 +1,2 @@
-# jayeshmodhwaida.github.io
+# jayeshmodhwadia.github.io
 Portfolio Website
