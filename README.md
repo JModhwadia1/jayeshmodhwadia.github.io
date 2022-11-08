@@ -7,6 +7,6 @@ Below shows the link to the portfolio and some of my social media accounts.
 
 ## Portfolio Website/Social Media
 
+* https://www.linkedin.com/in/jayesh-modhwadia-b29048223/
 * 
-* 
-*
+
